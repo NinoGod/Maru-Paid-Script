@@ -1,0 +1,2 @@
+# Maru-Paid-Script
+sadasd
